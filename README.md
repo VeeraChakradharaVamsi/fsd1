@@ -1,1 +1,1 @@
-# fsd1
+https://veerachakradharavamsi.github.io/fsd1/blog.html
